@@ -25,8 +25,8 @@
     <p> <b>Inexplicable love of Maa?</b><br>
         It was 4:50 am when I got up. I washed myself and packed my remaining stuff. At 6:04am my phone ranged, it was Sanjana (my friend). 
         At the time she called, she had already reached to the station, and at that moment I was at home, 
-        savouring mom-made platable Paratha. After some time, I heard horn of Train, then I
-        hurried myself up. I asked my father to make it quick, as he was going to drive me to the station. I took my luggage and
+        savouring mom-made platable Paratha. After some time, I heard a sound of horn of the train, it was like charging my all the cells 
+        and encouraging them to do work with the maximum potential, then I hurried myself up. I asked my father to make it quick, as he was going to drive me to the station. I took my luggage and
         went downstairs. My mother came running after me, with a lunch box with her <i>(that’s the mom’s love, which makes them
         different from everybody else)</i>. Mom opened the gate, and my father and I left. By the time we reached, the train had
         already arrived to the station.</p>
